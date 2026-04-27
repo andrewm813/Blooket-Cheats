@@ -1,5 +1,5 @@
 # Blooket Cheats
-These are Blooket Cheats that I found online. I do not remember where they came from.
+These are Blooket cheats that I found online. I do not remember where they came from.
 
 ## DISCLAIMER:
 **These are for educational purposes only. Use this at your own risk.**
